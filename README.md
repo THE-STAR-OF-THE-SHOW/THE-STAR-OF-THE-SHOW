@@ -27,5 +27,9 @@
 <p align="center">
   🌈🐾✨ Thanks for visiting! ✨🐾🌈
 </p>
+<img src="https://i.imgur.com/CmLT17U.png" width="250">
+
+
+
 
 
