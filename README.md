@@ -2,7 +2,7 @@
 
 <p align="center">
   💖 I'm glad you stopped by! 💖<br>
-  Have fun looking around my little corner of the internet!
+  Have fun looking around my little shop of the internet!
 </p>
 
 ---
@@ -19,7 +19,7 @@
 ## 🎀 Fun Stuff
 
 - 🌈 I check things daily!
-- 🐾 I love cute aesthetics
+- 🐾 I love pastel and clean aesthetics
 - ✨ Jester funk is SO GOOD
 
 ---
