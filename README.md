@@ -12,7 +12,8 @@
 🌈 I love my toon handlers!!  
 🌸 Big fan of my friends
 ✨ I enjoy roleplaying and being creative  
-💫 Always hanging out in my shop ^^
+💫 Always hanging out in my shop,so come on by!
+😵‍💫 i like making friends anytime! i love to talk..
 
 ---
 
@@ -21,6 +22,7 @@
 - 🌈 I check things daily on my strawpage! so leave a drawing!
 - 🐾 I love pastel and clean aesthetics
 - ✨ Jester funk is SO GOOD
+- 🌸 1# DANDY FAN
 
 ---
 
