@@ -9,7 +9,7 @@
 
 ## 🌸 About Me
 
-🌈 I love my toon handlers!!  
+🌈 Please...i hate being third wheeled..
 🌸 Big fan of my friends
 ✨ I enjoy roleplaying and being creative  
 💫 Always hanging out in my shop,so come on by!
