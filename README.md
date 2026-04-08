@@ -30,6 +30,9 @@
   🌈🐾✨ Thanks for visiting! ✨🐾🌈
 </p>
 <img src="https://i.imgur.com/CmLT17U.png" width="250">
+<img src="https://imgur.com/zPBb0H3.png" width="300">
+
+
 
 
 
