@@ -18,7 +18,7 @@
 💫 Always hanging out in my shop,so come on by!
 
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
-🍓🙏- idc WTF anybody says, tamers is SO peak. 
+🍓🙏- idc WTF anybody says, tamers is SO peak. i dont support them, but i like there jokes. SO SHUT THE FUCK UP ANYBODY WHO DOESNT LIKE IT
 
 ---
 
