@@ -12,8 +12,11 @@
 
 🌈 Please...i hate being third wheeled..so..include me things..
 🌸 Big fan of my friends
+
 ✨ I enjoy roleplaying and being creative  
+
 💫 Always hanging out in my shop,so come on by!
+
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
 🍓🙏- idc WTF anybody says, tamers is SO peak. 
 
