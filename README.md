@@ -15,6 +15,7 @@
 ✨ I enjoy roleplaying and being creative  
 💫 Always hanging out in my shop,so come on by!
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
+🍓🙏- idc WTF anybody says, tamers is SO peak. 
 
 ---
 
@@ -23,7 +24,9 @@
 - 🌈 I check things daily on my strawpage! so leave a drawing!
 - 🐾 I love pastel and clean aesthetics
 - ✨ Jester funk is SO GOOD
-- 🌸 1# DANDY FAN
+- 🌸 1# DANDY FAN DOUBLES DNI
+- 😵‍💫 you follow me, i follow back! hehe! dandy promise!
+- 🥹 im VERY freak- I MEAN, when i get to know you ill start acting a bit wild..
 
 ---
 
