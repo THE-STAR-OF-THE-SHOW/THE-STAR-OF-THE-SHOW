@@ -22,14 +22,14 @@
 
 ---
 
-## 🐶 Fun Stuff
+## 🐶 Random stuff.. 🐾
 
 - 🌈 I check things daily on my strawpage! so leave a drawing!
 - 🐾 I love pastel and clean aesthetics
 - ✨ Jester funk is SO GOOD
 - 🌸 1# DANDY FAN DOUBLES DNI
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
-- 🥹 im VERY freak- I MEAN, when i get to know you ill start acting a bit wild..
+- 🥹 im VERY freaky in ships. i may goo... THAT far. so uhh yea,, I MEAN, when i get to know you ill start acting a bit wild..
 
 ---
 
