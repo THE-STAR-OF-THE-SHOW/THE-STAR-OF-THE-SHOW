@@ -19,6 +19,7 @@
 
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
 🍓🙏- idc WTF anybody says, tamers is SO peak. i dont support them, but i like there jokes. SO SHUT THE FUCK UP ANYBODY WHO DOESNT LIKE IT
+👀👀- Im a great vent-too friend! i will listen and try to comfort you the best i can. 
 
 ---
 
