@@ -18,7 +18,8 @@
 💫 Always hanging out in my shop,so come on by!
 
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
-🍓🙏- idc WTF anybody says, tamers is SO peak. i dont support them, but i like there jokes. 
+🍓🙏- Im usually in my dandy cos, and i uh... dont like being left out a lot.... i have so much trouble with that
+
 👀👀- Im a great vent-too friend! i will listen and try to comfort you the best i can. 
 
 ---
@@ -31,7 +32,7 @@
 - 🌸 1# DANDY FAN DOUBLES DNI
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
 - 🥹 im VERY freaky in ships. i may goo... THAT far. so uhh yea,, I MEAN, when i get to know you ill start acting a bit wild..
-profile crp by me!
+profile made by me!
 ---
 
 <p align="center">
