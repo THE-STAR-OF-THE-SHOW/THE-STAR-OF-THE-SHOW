@@ -32,7 +32,7 @@
 - 🌸 1# DANDY FAN DOUBLES DNI
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
 - 🥹 im VERY freaky in ships. i may goo... THAT far. so uhh yea,, I MEAN, when i get to know you ill start acting a bit wild..
-profile made by me!
+profile crop hy me!
 ---
 
 <p align="center">
