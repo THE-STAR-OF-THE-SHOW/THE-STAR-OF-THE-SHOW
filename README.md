@@ -34,7 +34,10 @@
 - 🥹 im VERY freaky in ships. i may goo... THAT far. so uhh yea,, I MEAN, when i get to know you ill start acting a bit wild..
 profile crop hy me!
 ---
-
+##THINGS TO KNOW...💔
+- Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. :3
+  
+- 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 💔
 <p align="center">
   🌈🐾✨ Thanks for visiting! ✨🐾🌈
 </p>
