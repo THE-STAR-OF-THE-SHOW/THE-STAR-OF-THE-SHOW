@@ -49,6 +49,10 @@ profile crop hy me!
 <img src="https://i.imgur.com/CmLT17U.png" width="250">
 <img src="https://imgur.com/zPBb0H3.png"align= "left" width="300">
 <img src="https://imgur.com/XDumsPN.png" width="100%">
+<img src="https://tenor.com/view/dandys-world-dandy-dyle-tamers-tamers12345-gif-11727952174660182528.gif" align="left" width="700">
+
+
+
 
 
 
