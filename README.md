@@ -47,7 +47,7 @@ profile crop hy me!
   🌈🐾✨ Thanks for visiting! ✨🐾🌈
 </p>
 <img src="https://i.imgur.com/CmLT17U.png" width="250">
-<img src="https://imgur.com/zPBb0H3.png" width="300">
+<img src="https://imgur.com/zPBb0H3.png"align= "left" width="300">
 <img src="https://imgur.com/XDumsPN.png" width="100%">
 
 
