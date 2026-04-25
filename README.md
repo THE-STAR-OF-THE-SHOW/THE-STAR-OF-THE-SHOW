@@ -1,4 +1,4 @@
-^^>>>>>>>^^🐾“нιуα! ινє gσт gσσ∂ѕ тσ ѕєℓℓ!<img src="https://imgur.com/4hW7E3i.png" width="100%">
+^^>>>>>>>^^🐾“нιуα! ινє gσт gσσ∂ѕ тσ ѕєℓℓ!<img src="https://imgur.com/MS4MvGO.png" width="100%">
 ## burp 👋<h1 align="center">🌈✨ Hiya! Welcome to my shop✨🌈</h1>
 
 <p align="center">
@@ -45,9 +45,8 @@ profile crop hy me!
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
 <p align="center">
   🌈🐾✨ Thanks for visiting! ✨🐾🌈
-</p>
-<img src="https://i.imgur.com/CmLT17U.png" width="250">
-<img src="https://imgur.com/zPBb0H3.png"align= "left" width="300">
+</
+
 <img src="https://imgur.com/XDumsPN.png" width="100%">
 <img src="https://tenor.com/view/dandys-world-dandy-dyle-tamers-tamers12345-gif-11727952174660182528.gif" align="left" width="700">
 
