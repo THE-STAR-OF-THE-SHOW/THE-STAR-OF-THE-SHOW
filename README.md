@@ -41,13 +41,16 @@ profile crop hy me!
 ---
 ##THINGS TO KNOW...💔
 - Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. :3
+<
+
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
 <p align="center">
-  🌈🐾✨ Thanks for visiting! ✨🐾🌈
-</
+  🌈🐾✨ Thanks for visiting!"
 
-<img src="https://imgur.com/XDumsPN.png" width="100%">
+
+
+
 <img src="https://tenor.com/view/dandys-world-dandy-dyle-tamers-tamers12345-gif-11727952174660182528.gif" align="left" width="700">
 
 
