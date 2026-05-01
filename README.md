@@ -23,6 +23,11 @@
 
 👀👀- Im a great vent-too friend! i will listen and try to comfort you the best i can. 
 😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. hehe!
+🤑- PRONOUNS! 
+She/Her,  I really like xenogenders so uhh lots of nicknames.. you can call me Dandy or Lemon.. I am pansexual and a objectum!
+🥺- I LOVE WIREPLAY I LOVE WIREPLAY I LOVE WIREPLAY PLEASE SEND ME LINKS TO ANY WIREPLAY WIREPLAY GULP DROOLS AWOOGA HEART GOES OUT OF CHEST WIRE PLAY  WIR- gets shot
+
+
 
 ---
 
