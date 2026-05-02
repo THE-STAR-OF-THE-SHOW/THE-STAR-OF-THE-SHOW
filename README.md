@@ -51,7 +51,9 @@ profile crop hy me!
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
 <p align="center">
-  🌈🐾✨ Thanks for visiting!"
+  🌈🐾✨ Thanks for visiting!
+  <img src="https://i.imgur.com/Rc8dpIJ.png" width="450">
+
 
 
 
