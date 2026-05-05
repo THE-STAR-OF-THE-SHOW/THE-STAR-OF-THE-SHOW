@@ -18,13 +18,13 @@
 💫 Always hanging out in my shop,so come on by!
 
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
-🍓🙏- Im usually in my dandy cos, actually im 24/7 in my dandy cos..
-🥶-THIN ICE: Darkshippers, Proshippers, people who are stinky
+🍓🙏- Im usually in my dandy cos, actually im 24/7 in my dandy 
 
 👀👀- Im a great vent-too friend! i will listen and try to comfort you the best i can. 
 😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. hehe!
 🤑- PRONOUNS! 
 She/Her,  I really like xenogenders so uhh lots of nicknames.. you can call me Dandy or Lemon.. I am pansexual and a objectum!
+
 🥺- I LOVE WIREPLAY I LOVE WIREPLAY I LOVE WIREPLAY PLEASE SEND ME LINKS TO ANY WIREPLAY WIREPLAY GULP DROOLS AWOOGA HEART GOES OUT OF CHEST WIRE PLAY  WIR- gets shot
 
 
@@ -36,7 +36,7 @@ She/Her,  I really like xenogenders so uhh lots of nicknames.. you can call me D
 - 🌈 I check things daily on my strawpage! so leave a drawing!
 - 🐾 I love pastel and clean aesthetics
 - ✨ Jester funk is SO GOOD
-- 🌸 1# DANDY FAN DOUBLES DNI
+- 🌸 1# DANDY FAN AND FICKIN DOUBLES iwec
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
 - 🥹 im like shipping sometimess uhh eenhen i may say brainrot as a joke 💔
 profile crop hy me!
