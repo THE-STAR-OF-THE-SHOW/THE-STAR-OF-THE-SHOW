@@ -10,7 +10,7 @@
 
 ## 🌸 About Me, the star
 
-🌈 Please...i hate being third wheeled..so..include me things..
+
 🌸 Big fan of my friends
 
 ✨ I enjoy roleplaying, 100$ you can find me in a dw rp
@@ -20,10 +20,11 @@
 😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
 🍓🙏- Im usually in my dandy cos, actually im 24/7 in my dandy 
 
-👀👀- Im a great vent-too friend! i will listen and try to comfort you the best i can. 
+ 
 😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. hehe!
+
 🤑- PRONOUNS! 
-She/Her,  I really like xenogenders so uhh lots of nicknames.. you can call me Dandy or Lemon.. I am pansexual and a objectum!
+She/Her,  you can call me Dandy or Lemon.. I am pansexual and a objectum!
 
 🥺- I LOVE WIREPLAY I LOVE WIREPLAY I LOVE WIREPLAY PLEASE SEND ME LINKS TO ANY WIREPLAY WIREPLAY GULP DROOLS AWOOGA HEART GOES OUT OF CHEST WIRE PLAY  WIR- gets shot
 
@@ -51,7 +52,7 @@ THIN ICE:
 Darkshippers/Proshippers (i dont care abt yall just dont get into my ships)
 People who gossip
 Uhshs People who judge someone based on NO PROOF or rumors.
-Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches
+Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches (ts argument is so old, yes ik, but it affected my trust in so many ways.)
 Judging my friends or me or my github
 People who dislike objectums
 PEOPLE WHO TALK ABT HOW BAD TAMERS IS TO ME EBEBDBI DONT FUCKING CARE
