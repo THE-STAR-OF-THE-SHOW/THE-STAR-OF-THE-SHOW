@@ -41,7 +41,6 @@ She/Her,  you can call me Dandy or Lemon.. I am pansexual and a objectum!
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
 - 🥹 im like shipping sometimess uhh eenhen i may say brainrot as a joke 💔
 profile crop hy me!
-😔- ok. i like tamers. ik there problematic in some way but i dont support them really.., sorry :(
 
 “ѕραяє α ƒℓσωєя ѕσмє тαρєѕ?” 🐾🌈
 ---
