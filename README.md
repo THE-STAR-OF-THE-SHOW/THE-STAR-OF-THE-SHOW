@@ -36,7 +36,7 @@ She/Her,  you can call me Dandy or Lemon.. I am pansexual and a objectum!
 
 - 🌈 I check things daily on my strawpage! so leave a drawing!
 - 🐾 I love pastel and clean aesthetics
-- ✨ Jester funk is SO GOOD
+  
 - 🌸 1# DANDY FAN AND FICKIN DOUBLES iwec
 - 😵‍💫 you follow me, i follow back! hehe! dandy promise!
 - 🥹 im like shipping sometimess uhh eenhen i may say brainrot as a joke 💔
@@ -54,7 +54,7 @@ Uhshs People who judge someone based on NO PROOF or rumors.
 Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches (ts argument is so old, yes ik, but it affected my trust in so many ways.)
 Judging my friends or me or my github
 People who dislike objectums
-PEOPLE WHO TALK ABT HOW BAD TAMERS IS TO ME EBEBDBI DONT FUCKING CARE
+PEOPLE WHO TALK ABT HOW BAD TAMERS IS TO ME EBEBDBI DONT FUCKING CARE I LIKE WEEKLYAY TOO IS THAT A FUCKKING CRIME
 
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
