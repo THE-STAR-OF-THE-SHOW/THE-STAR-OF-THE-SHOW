@@ -47,14 +47,16 @@ profile crop hy me!
 ##THINGS TO KNOW...💔
 - Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. :3
 - 
-THIN ICE:
+THIN ICE/DNI:
 Darkshippers/Proshippers (i dont care abt yall just dont get into my ships)
 People who gossip
 Uhshs People who judge someone based on NO PROOF or rumors.
+
 Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches (ts argument is so old, yes ik, but it affected my trust in so many ways.)
 Judging my friends or me or my github
 People who dislike objectums
 PEOPLE WHO TALK ABT HOW BAD TAMERS IS TO ME EBEBDBI DONT FUCKING CARE I LIKE WEEKLYAY TOO IS THAT A FUCKKING CRIME
+those 7th graders who talk about me supporting qwel when they did NOT understand the whole conversation, so shur the absoultue fuck up dudes.
 
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
