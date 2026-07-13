@@ -55,8 +55,11 @@ Uhshs People who judge someone based on NO PROOF or rumors.
 Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches (ts argument is so old, yes ik, but it affected my trust in so many ways.)
 Judging my friends or me or my github
 People who dislike objectums
+
 PEOPLE WHO TALK ABT HOW BAD TAMERS IS TO ME EBEBDBI DONT FUCKING CARE I LIKE WEEKLYAY TOO IS THAT A FUCKKING CRIME
-those 7th graders who talk about me supporting qwel when they did NOT understand the whole conversation, so shur the absoultue fuck up dudes.
+
+those 7th graders who talk about me supporting qwel when they did NOT understand the whole conversation, so shut the absoultue fuck up dudes.
+Bully me all you want, your literally just wasting your time because i hide ya dudez!
 
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
