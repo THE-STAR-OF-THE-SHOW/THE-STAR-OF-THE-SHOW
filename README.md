@@ -56,9 +56,7 @@ Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitc
 Judging my friends or me or my github
 People who dislike objectums
 
-APOLGIEZ:
-I THINK i should stop supporting those people earlier. i didnt know the full story about weeklyyay but i checked a lot of comments. it was likr some people sayung she did nothing, then another bunch saying she did something. just like qwel, i liked her channel because of the annimations, so OF COURSE i sided with her. but that was a mistake. i also apologize for the qwel situation, and i supported her for the time because i thpught it was just some people who were mad at her or heard false information. i shouldve apologized at the time or hadnt started a arugument, but that did NOT give you guys the right to mock my github nor repeat any of my socials. You couldve ignored me and NONE of this wouldve happened. actually this only started with yall. peace!
-
+alright I apologized but yall are shitty and dumb and literally cant forgive someone who went back on their actions. atp yall are just pathetic.
 
 those 7th graders who talk about me supporting qwel when they did NOT understand the whole conversation, so shut the absoultue fuck up dudes.
 Bully me all you want, your literally just wasting your time because i hide ya dudez!
