@@ -13,18 +13,18 @@
 
 🌸 Big fan of my friends
 
-✨ I enjoy roleplaying, 100$ you can find me in a dw rp
+✨ I enjoy roleplaying, 100$ you can find me in a lab or school rp or 
+cafe! dont be shy to sit next to me! :3 
 
-💫 Always hanging out in my shop,so come on by!
+😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody.
 
-😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody. 
-🍓🙏- Im usually in my dandy cos, actually im 24/7 in my dandy 
+🎲-  usually in my chance cos lolz
 
  
 😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. hehe!
 
 🤑- PRONOUNS! 
-She/Her,  you can call me Dandy or Lemon.. I am pansexual and a objectum!
+She/them,  you can call me Sixer or Milkbone.. I am berrisexual!
 
 🥺- I LOVE WIREPLAY I LOVE WIREPLAY I LOVE WIREPLAY PLEASE SEND ME LINKS TO ANY WIREPLAY WIREPLAY GULP DROOLS AWOOGA HEART GOES OUT OF CHEST WIRE PLAY  WIR- gets shot
 
@@ -35,10 +35,10 @@ She/Her,  you can call me Dandy or Lemon.. I am pansexual and a objectum!
 ## 🐶 Random stuff.. 🐾
 
 - 🌈 I check things daily on my strawpage! so leave a drawing!
-- 🐾 I love pastel and clean aesthetics
+- 🐾 I love gambling on games
   
-- 🌸 1# DANDY FAN AND FICKIN DOUBLES iwec
-- 😵‍💫 you follow me, i follow back! hehe! dandy promise!
+- 🌸 1# DANDY FAN AND SIXER FICTKIN, DOUBLES DNI
+- 😵‍💫 you follow me, i follow back! im lying. dont try . 
 - 🥹 im like shipping sometimess uhh eenhen i may say brainrot as a joke 💔
 profile crop hy me!
 
@@ -52,26 +52,21 @@ Darkshippers/Proshippers (i dont care abt yall just dont get into my ships)
 People who gossip
 Uhshs People who judge someone based on NO PROOF or rumors.
 
-Rodger/Caramelo/Santiago/ or any other people who thrid wheeled me son of a bitches (ts argument is so old, yes ik, but it affected my trust in so many ways.)
+People who fictionkin, ship, dogs or children, you guys are sick. 
 Judging my friends or me or my github
-People who dislike objectums
+People who dislike objectums/ harrass me over it 
+ppl who harras people over opinions.
+Isreal haters (not saying the place isnt bad, just saying theres innocent ppl too
 
 alright I apologized but yall are shitty and dumb and literally cant forgive someone who went back on their actions. atp yall are just pathetic.
 
-those 7th graders who talk about me supporting qwel when they did NOT understand the whole conversation, so shut the absoultue fuck up dudes.
-Bully me all you want, your literally just wasting your time because i hide ya dudez!
+HEALING FROM SUPPORTING BAD PPL!! 
 
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
 <p align="center">
   🌈🐾✨ Thanks for visiting!
-  <img src="https://i.imgur.com/Rc8dpIJ.png" width="450">
-
-
-
-
-
-<img src="https://tenor.com/view/dandys-world-dandy-dyle-tamers-tamers12345-gif-11727952174660182528.gif" align="left" width="700">
+   🎲🎲🎲
 
 
 
