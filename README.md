@@ -11,21 +11,20 @@
 ## 🌸 About Me, the star
 
 
-🌸 Big fan of my friends
+🌸 Big fan of my friends (CHARA I KNOE UR THERE!!
 
 ✨ I enjoy roleplaying, 100$ you can find me in a lab or school rp or 
 cafe! dont be shy to sit next to me! :3 
 
-😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody.
+😵‍💫 i like making friends anytime! i love to talk! i am shy with people that are already close with somebody, i have trust issuesand it makes me feel excluded.
 
-🎲-  usually in my chance cos lolz
+🎲-  usually in my bludud cos lolz!
 
  
-😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. hehe!
+😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. im pretty lonley. 
 
 🤑- PRONOUNS! 
-She/them,  you can call me Sixer or Milkbone.. I am berrisexual!
-
+she/them! ..  you can call me Sixer or Milkbone.. I am berrisexual!
 🥺- I LOVE WIREPLAY I LOVE WIREPLAY I LOVE WIREPLAY PLEASE SEND ME LINKS TO ANY WIREPLAY WIREPLAY GULP DROOLS AWOOGA HEART GOES OUT OF CHEST WIRE PLAY  WIR- gets shot
 
 
@@ -34,33 +33,33 @@ She/them,  you can call me Sixer or Milkbone.. I am berrisexual!
 
 ## 🐶 Random stuff.. 🐾
 
-- 🌈 I check things daily on my strawpage! so leave a drawing!
+- 🌈 I check things daily on my strawpage! so leave a drawing! no i fucking dont im a cunt and lied 😭😭
 - 🐾 I love gambling on games
   
-- 🌸 1# DANDY FAN AND SIXER FICTKIN, DOUBLES DNI
+- 🌸 1# TAUNT FAN AND SIXER FICTKIN, DOUBLES IWEC i get snappy 
 - 😵‍💫 you follow me, i follow back! im lying. dont try . 
-- 🥹 im like shipping sometimess uhh eenhen i may say brainrot as a joke 💔
-profile crop hy me!
+- 🥹 i like shipping so cuds me all u want!
 
+- 🙁 i have bad spelling on purpose because i used to kin bludud, please dont think im slow
+
+🎢 -PLEASE please. it may sound odd but i really like people who want me to stay with them. being clingy is ok for me ig? it really makes me happy too see someone ACTUALLY want me too stay after having fake friends for a while
 “ѕραяє α ƒℓσωєя ѕσмє тαρєѕ?” 🐾🌈
 ---
 ##THINGS TO KNOW...💔
-- Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. :3
+- Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. i will apologize and step away if u want me too!
 - 
 THIN ICE/DNI:
 Darkshippers/Proshippers (i dont care abt yall just dont get into my ships)
 People who gossip
 Uhshs People who judge someone based on NO PROOF or rumors.
 
-People who fictionkin, ship, dogs or children, you guys are sick. 
+DUDES WHO SPELL APOLOGIZE APOLGISE STOP PLEASE ITS BURNING MY EYES
 Judging my friends or me or my github
-People who dislike objectums/ harrass me over it 
-ppl who harras people over opinions.
-Isreal haters (not saying the place isnt bad, just saying theres innocent ppl too
 
-alright I apologized but yall are shitty and dumb and literally cant forgive someone who went back on their actions. atp yall are just pathetic.
+Isreal haters (not saying the place isnt bad and they have caused war (because of our stupid ass president , just saying theres innocent ppl too
 
-HEALING FROM SUPPORTING BAD PPL!! 
+
+
 
   
 - 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
