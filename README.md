@@ -22,6 +22,7 @@ cafe! dont be shy to sit next to me! :3
 
  
 😭- I love my friends, so feel free to cuddle with me! usually, all my friends are offline, but im ALWAYS on ponytown. im pretty lonley. 
+i dont support qwel!! this is an old layout and im chsnging it in the future!
 
 🤑- PRONOUNS! 
 she/them! ..  you can call me Sixer or Milkbone.. I am berrisexual!
@@ -42,9 +43,11 @@ she/them! ..  you can call me Sixer or Milkbone.. I am berrisexual!
 
 - 🙁 i have bad spelling on purpose because i used to kin bludud, please dont think im slow
 🎢 -PLEASE please. it may sound odd but i really like people who want me to stay with them. being clingy is ok for me ig? it really makes me happy too see someone ACTUALLY want me too stay after having fake friends for a while
- uhh.. please only 15+ up int, im 17-19. (happy bday to meh!)
+
+i pefer 14+ up to int, but any below is cool too!! (im 16-18) 
+
 “ѕραяє α ƒℓσωєя ѕσмє тαρєѕ?” 🐾🌈
----
+
 ##THINGS TO KNOW...💔
 - Im hypersexual. this is a sexual disorder that is uncontrolable that leaves a person with sexual urges. It happens to people that have been through SA, or other types. some coping is usually watching corn, and other things i cant mention. yes i have done erp, and i have hypersexuality. please bare with me and tell me when im making u uncomfy. i will apologize and step away if u want me too!
 - 
@@ -54,6 +57,7 @@ People who gossip
 Uhshs People who judge someone based on NO PROOF or rumors.
 
 DUDES WHO SPELL APOLOGIZE APOLGISE STOP PLEASE ITS BURNING MY EYES
+
 Judging my friends or me or my github
 
 Isreal haters (not saying the place isnt bad and they have caused war (because of our stupid ass president , just saying theres innocent ppl too
@@ -62,7 +66,7 @@ Isreal haters (not saying the place isnt bad and they have caused war (because o
 
 
   
-- 🌈 i may go on 18+ Server to get rid of that urge, so. dont think im 18 twin
+- 🌈 hey, remember yur so cool! i luv u, hve a gret bluu day!!!!!
 <p align="center">
   🌈🐾✨ Thanks for visiting!
    🎲🎲🎲
