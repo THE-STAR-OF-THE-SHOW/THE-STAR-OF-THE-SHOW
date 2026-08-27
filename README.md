@@ -62,7 +62,7 @@ Judging my friends or me or my github
 
 Isreal haters (not saying the place isnt bad and they have caused war (because of our stupid ass president , just saying theres innocent ppl too
 
-
+any coal-irl friends. racist asf. 
 
 
   
