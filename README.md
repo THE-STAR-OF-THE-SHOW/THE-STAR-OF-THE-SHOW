@@ -64,6 +64,18 @@ Isreal haters (not saying the place isnt bad and they have caused war (because o
 
 any coal-irl friends. racist asf. 
 
+people who use ~~~ at the end of ANY sentence yu guys arent funny 
+
+random people who dont follow others dni
+
+CAUTION! :
+
+😁: i might avoid you or say '???" if im in a bad mood (thanks mom)
+if im rude then thats a dopple ganger..
+
+over 18+ iwec , under 10 dni 
+
+
 
   
 - 🌈 hey, remember yur so cool! i luv u, hve a gret bluu day!!!!!
