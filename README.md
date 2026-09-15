@@ -44,7 +44,7 @@ she/them! ..  you can call me Sixer or Milkbone.. I am berrisexual!
 - 🙁 i have bad spelling on purpose because i used to kin bludud, please dont think im slow
 🎢 -PLEASE please. it may sound odd but i really like people who want me to stay with them. being clingy is ok for me ig? it really makes me happy too see someone ACTUALLY want me too stay after having fake friends for a while
 
-i pefer 14+ up to int, but any below is cool too!! (im 16-18) 
+i dont know why i put an age pefrences actually 
 
 “ѕραяє α ƒℓσωєя ѕσмє тαρєѕ?” 🐾🌈
 
