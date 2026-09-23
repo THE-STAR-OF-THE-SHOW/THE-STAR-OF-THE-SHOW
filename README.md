@@ -2,8 +2,8 @@
 <div align="center">
   <img src="IMG_1658.jpeg" width="500">
 </div>
-𝖩𝖠𝖸 𝖸𝖮𝖴 𝖦𝖮𝖳𝖳𝖠 𝖬𝖮𝖵𝖤
+𝚝𝚑𝚒𝚗𝚐𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎…
+🐾
+<img src="IMG_1670.jpeg" width="300">
 
-
-
-“ｓo m e  ｔｈ１ｎｇｓ ａｂ０ｕｔ ｍｅ!”
+☆ ★ ✮ ★ ☆ 1. I love to talk! dont be shy to sit next to me or bmf! I love making new friend groups. 
