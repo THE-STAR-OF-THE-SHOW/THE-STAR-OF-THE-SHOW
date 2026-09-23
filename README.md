@@ -66,7 +66,7 @@ any coal-irl friends. racist asf.
 
 people who use ~~~ at the end of ANY sentence yu guys arent funny 
 
-random people who dont follow others dni
+
 
 CAUTION! :
 
