@@ -29,4 +29,9 @@ you freely cud
 you talk about both our interest 
  and your just genuinely understanding ^^
 
+ more info on my socials ^^ 
+
+⋆˚✰ ݁˖⭑.ᐟ remember, I love you, and always stay bluu!
+ 
+
  
