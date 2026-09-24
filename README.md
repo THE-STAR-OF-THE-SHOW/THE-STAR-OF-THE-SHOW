@@ -6,4 +6,13 @@
 🐾
 <img src="IMG_1670.jpeg" width="300">
 
-☆ ★ ✮ ★ ☆ 1. I love to talk! dont be shy to sit next to me or bmf! I love making new friend groups. 
+☆ ★ ✮ ★ ☆ 1. I love to talk! dont be shy to sit next to me or bmf! I love making new friend groups.
+
+2. i fictionkin bluudud, so I may mispell things on purpose or #things
+
+3.  PLEASE do NOT ask for my Roblox socials unless ur someone close, any other socials are fine 
+
+4. i like roleplaying, so if you inv me to just spectate I’ll leave
+
+5. Im not rude unless you made me feel a certain way, so I might back off a bit if your a stranger
+   . INT with caution if your already close friends with a group, I have crazy trust issues 
