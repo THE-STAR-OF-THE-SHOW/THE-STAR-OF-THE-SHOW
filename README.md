@@ -15,4 +15,18 @@
 4. i like roleplaying, so if you inv me to just spectate I’ll leave
 
 5. Im not rude unless you made me feel a certain way, so I might back off a bit if your a stranger
-   . INT with caution if your already close friends with a group, I have crazy trust issues 
+   . INT with caution if your already close friends with a group, I have crazy trust issues
+
+    𝕮✮𝖗𝖙𝖎𝖋𝖎✮𝖉 𝖑𝖔𝖘✮𝖗 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
+
+   <img src="IMG_1661.jpeg" width="400" height="220">
+
+   INT:
+
+   if your in any of my fandoms!
+you freely cud
+
+you talk about both our interest 
+ and your just genuinely understanding ^^
+
+ 
