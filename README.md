@@ -1,6 +1,6 @@
 “𝗆𝗒 𝖼𝗈𝗈𝗅 𝖻𝗅𝗎𝗎 𝗍𝗎𝗇𝖾!”⋆.˚✮🎧✮˚.⋆ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 <div align="center">
-  <img src="IMG_1658.jpeg" width="500">
+  <img src="IMG_1668.jpeg" width="350">
 </div>
 𝚝𝚑𝚒𝚗𝚐𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎…
 🐾
